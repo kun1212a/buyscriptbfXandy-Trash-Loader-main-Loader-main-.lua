@@ -1,1 +1,0 @@
-# buyscriptbfXandy-Trash-Loader-main-Loader-main-.lua
